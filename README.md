@@ -1,5 +1,5 @@
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Fmiata&psig=AOvVaw32mGEwBXQKdF0Ea3el8r5O&ust=1695467673721000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCIjQobaLvoEDFQAAAAAdAAAAABAQ)
-
+### salve rapazes
+![miot](https://media.tenor.com/J-l89Gl3cNwAAAAC/miata-wink.gif) 
 
 <!--
 **Camarott0/Camarott0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
